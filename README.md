@@ -6,15 +6,21 @@
 ## Main Characters
 ### Omniscient Reader’s Viewpoint
 Kim Dokja
+
 Yoo Joonghyuk
+
 Han Sooyoung
+
 Lee Hyunsung
 
 
 ### Nano Machine
 Cheon Yeo-Woon
+
 Guardian AI
+
 Chun Muyeon
+
 Elder Huan Yi
 
 
